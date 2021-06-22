@@ -11,3 +11,5 @@ CSV Project QL
 🌱 I am still a sprout, this is my introduction to Data Analysis.
 💞️ I’m looking to collaborate on ...( >>>insert great idea here;)! )
 📫 How to reach me ... >>> you can't ;) mwahahahaha!!) lol! Through MAKESCHOOL, until I update my contact info :)
+💻 Read my blog on this 
+📍 Here. -->>     https://rose-briseno.medium.com/insights-on-fortune-1000-companies-17f6d9835daa
